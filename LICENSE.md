@@ -1,4 +1,4 @@
-# 
+# custom Affinity Photo para PC executor é o melhor Affinity Photo para PC executor com gerenciamento de cores e modelagem 3D. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
